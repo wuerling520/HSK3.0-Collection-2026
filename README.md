@@ -6,4 +6,4 @@
 
 ## Disclaimer: All materials posted here are sourced primarily from 中文考试服务网 (chinesetest.cn), as well as other official and publicly available online resources. These materials can be removed upon request, and I will fully cooperate with any official representatives of books, audio resources, or Chinese test centers.
 
-For all requests, please contact me via the email listed on the GitHub profile, or request to be added on WeChat through email for any future communications or suggestions.
+For all requests, please contact me via the email (playoff217@gmail.com), or request to be added on WeChat through email for any future communications or suggestions.
